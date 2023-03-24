@@ -1,1 +1,0 @@
-# small-goals-of-everyday-web
